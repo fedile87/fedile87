@@ -11,7 +11,7 @@
 ##  :calendar: Actualmente estoy:
 ### :bar_chart: Trabajando:
 - En escuelas de nivel primario y secundario
-- En mi emprendimiento gráfico (imprentero)
+- En mi emprendimiento gráfico (/imprentamodelo)
 ### 📑: Estudiando:
 - Tecnicatura sup. en Desarrollo de Software (último año). El lenguaje con el que mas me gusta trabajar es C#.
   
