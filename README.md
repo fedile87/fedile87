@@ -2,7 +2,7 @@
 ![banner](https://github.com/fedile87/fedile87/assets/121730468/b26d936e-98bc-4acb-ae20-a37a24a8b0fc)
 
 ## 🎵 :star: Acerca de mi! :star: 🎵
-- Soy feliz esposo de Jessica y orgullo papá de mi recien nacido Máximmo y Froppy🐶;
+- Soy feliz esposo de Jessica y orgulloso papá de mi recien nacido Máximmo. De Froppy también🐶;
 - Soy zurdo... siniestro  :point_left: 
 - Canto y toco algunos instrumentos como guitarra, piano, bateria y bajo (oro puro!!!) pero todo como diestro - y estoy  algo oxidado 😒-.
 - Trabajo como docente de musica de niños desde 3 a 5 años y con adolescentes.
