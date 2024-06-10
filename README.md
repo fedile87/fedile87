@@ -1,4 +1,5 @@
-# Hola! Soy Fernando. Futuro nuevo programador 
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Hola!+Soy+Fernando;Futuro+Desarrollador!)](https://git.io/typing-svg)
+
 ![banner](https://github.com/fedile87/fedile87/assets/121730468/b26d936e-98bc-4acb-ae20-a37a24a8b0fc)
 
 ## 🎵 :star: Acerca de mi! :star: 🎵
